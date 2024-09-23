@@ -1,5 +1,5 @@
 # 💫 About Me:
-<br>🌟 Hello! I'm Kavipriya, an enthusiastic student studying Artificial Intelligence and Data Science. I love diving into emerging technologies and working on projects that make a real impact.Here's a refined version with varied sentences:
+<br> 🌟 Hello! I'm Kavipriya, an enthusiastic student studying Artificial Intelligence and Data Science. I love diving into emerging technologies and working on projects that make a real impact.Here's a refined version with varied sentences:
 
 
 ## 🌐 Socials:
